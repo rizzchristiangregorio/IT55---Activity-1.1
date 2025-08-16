@@ -1,1 +1,2 @@
-Author: Rizz Christian B. Gregorio
+Author: Rizz Christian B. Gregorio | BSIT - 2A
+
